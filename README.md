@@ -1,2 +1,3 @@
 # TESTLAB
- test lab
+Humans are part of nature, not separate from it, and human activity that hurts the environment also hurts us. In China, just two months of reduced pollution is likely to have saved the lives of 4,000 children under the age of 5 and 73,000 adults over the age of 70, writes Marshall Burke, an assistant professor in Stanford’s earth system science department. Perhaps the real question is not whether the virus is “good” or “bad” for climate, or whether rich people will take fewer airplane flights, but whether we can create a functioning economy that supports people without threatening life on Earth, including our own.
+The New York Times, Sunday review march 29 2020 Meehan Christ.
